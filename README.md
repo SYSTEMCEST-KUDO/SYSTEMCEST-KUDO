@@ -65,7 +65,7 @@ $${\color{#F8d1cd} Contact　me　via}$$　<a href="https://zombielovejuice.atab
 <summary>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="10%" align="center" src="https://github.com/user-attachments/assets/b90ee2dd-fbc1-47fe-9bda-bac0cf6d2f8a" /></summary>
 <h4><a href="https://github.com/gambling-addict">gambling-addictㅤ</a> Pony Town's $${\color{#DA2C43}NO1}$$ Github follower!</h4>
 <h4><a href="https://github.com/MoriouChoRadio">Welcome2Paradiseㅤ</a> Pony Town's $${\color{#DA2C43}MOST-REOCCURING}$$ JJBA enthusiast!</h4>
-
+<h4><a href="https://github.com/thefleshcurtains">thefleshcurtainsㅤ</a> Pony Town's $${\color{#DA2C43}NO1}$$ Michael Jackson fan!</h4>
   </details>
 </v>
 <p align="center"><a href="https://tumblr.com/imsurlai"><img width="4000" title="ac: imsurlai @ TMBLR" src="https://github.com/user-attachments/assets/207c5d39-4e99-469c-9d19-112cf6cc77b5" /></a></p>
