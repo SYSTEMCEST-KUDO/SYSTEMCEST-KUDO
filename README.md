@@ -54,7 +54,7 @@ $${\color{#F8d1cd} Contact　me　via}$$　<a href="https://zombielovejuice.atab
 　　<br>
 <a href="https://github.com/BC-013">3</a>$${\color{#E97E88} :　BC-013}$$
     <br>
-    <a href="https://syscestkudo.straw.page/" title="KUDOS">　　click to recommend kudos.　　</a>
+    <a href="https://ponykudos.straw.page/" title="KUDOS">　　click to recommend kudos.　　</a>
   </details>
   </td>
   </tr>
