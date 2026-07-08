@@ -31,17 +31,16 @@
 　　　<br>
 $${\color{#DA2C43} This　is　a　spam-follow　account.}$$
 　　<br>
-$${\color{#E15566} We　kudo　people.}$$
-    <br>
-$${\color{#E97E88} Enlighten　us　if　we　follow　anyone　bad.}$$
+$${\color{#E15566} Enlighten　us　if　we　follow　anyone　bad.}$$
 　　<br>
-$${\color{#F0a8ab} If　bothered,　block.}$$
+$${\color{#E97E88} If　bothered,　block.}$$
 　　<br>
-$${\color{#F8d1cd} Contact　me　via}$$　<a href="https://zombielovejuice.atabook.org/">here</a>.
+$${\color{#F0a8ab} Sign　the　}$$　<a href="https://zombielovejuice.atabook.org/">atabook</a>!
   </details>
   </td>
   </tr>
   </table>
+  <br><br>
   <table align="center">
     <tr>
 <td>
@@ -53,26 +52,9 @@ $${\color{#F8d1cd} Contact　me　via}$$　<a href="https://zombielovejuice.atab
 <a href="https://github.com/NERDPROJECT">2</a>$${\color{#E15566} :　NERDPROJECT}$$
 　　<br>
 <a href="https://github.com/BC-013">3</a>$${\color{#E97E88} :　BC-013}$$
-    <br>
-    <a href="https://ponykudos.straw.page/" title="KUDOS">　　click to recommend kudos.　　</a>
   </details>
   </td>
   </tr>
   </table>
 <p align="center"><img width="38%" src="https://github.com/user-attachments/assets/3d55c80b-9769-4268-a017-0ee3d47a4989" /></p>
-<v align="center">
-  <details>
-<summary>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="10%" align="center" src="https://github.com/user-attachments/assets/b90ee2dd-fbc1-47fe-9bda-bac0cf6d2f8a" /></summary>
-<h4><a href="https://github.com/gambling-addict">gambling-addictㅤ</a> Pony Town's $${\color{#DA2C43}NO1}$$ Github follower</h4>
-<h4><a href="https://github.com/MoriouChoRadio">Welcome2Paradiseㅤ</a> Pony Town's $${\color{#DA2C43}MOST-REOCCURING}$$ JJBA enthusiast</h4>
-<h4><a href="https://github.com/thefleshcurtains">thefleshcurtainsㅤ</a> Pony Town's $${\color{#DA2C43}NO1}$$ Michael Jackson fan</h4>
-<h4><a href="https://github.com/Asrieluo">Asrieluoㅤ</a> Pony Town's $${\color{#DA2C43}ONLY}$$ Israel</h4>
-<h4><a href="https://github.com/lobogirl">lobogirlㅤ</a> Pony Town's $${\color{#DA2C43}NO1}$$ lobo selfshipper</h4>
-<h4><a href="https://github.com/braindead-beauty">braindead-beautyㅤ</a> Pony Town's $${\color{#DA2C43}BIGGEST}$$ Norton Campbell fan</h4>
-<h4><a href="https://github.com/the-divine-feminine">the-divine-feminineㅤ</a> Pony Town's $${\color{#DA2C43}BIGGEST}$$ Vault Boy fan</h4>
-<h4><a href="https://github.com/jeffery2009lol">jeffery2009lolㅤ</a> Pony Town's $${\color{#DA2C43}JEFFERY}$$ from co09</h4>
-<h4><a href="https://github.com/zydr4t3">zydr4t3ㅤ</a> Pony Town's $${\color{#DA2C43}BIGGEST}$$ jerk</h4>
-
-  </details>
-</v>
 <p align="center"><a href="https://tumblr.com/imsurlai"><img width="4000" title="ac: imsurlai @ TMBLR" src="https://github.com/user-attachments/assets/207c5d39-4e99-469c-9d19-112cf6cc77b5" /></a></p>
